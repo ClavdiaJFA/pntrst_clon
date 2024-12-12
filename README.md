@@ -1,1 +1,1 @@
-# pntrst_clon
+CLON DE PINTEREST
